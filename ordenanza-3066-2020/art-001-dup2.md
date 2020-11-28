@@ -1,0 +1,1 @@
+ARTÍCULO 1º: La vigencia del contrato será de cinco (5) meses, comenzando a regir el 1º de Noviembre del 2020 hasta el 31 de marzo de 2021. El profesional contratado percibirá por la obra previamente descripta el monto mensual de Pesos Veinticuatro Mil ($24.000,00).-
