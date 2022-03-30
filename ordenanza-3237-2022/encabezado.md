@@ -1,0 +1,7 @@
+Ordenanza Nº3237
+Ordenanza Nº 3237
+Tapalqué, 20/01/2022
+ORDENANZA
+ORDENANZA IMPOSITIVA EJERCICIO 2022
+CAPITULO I
+Tasa por Alumbrado

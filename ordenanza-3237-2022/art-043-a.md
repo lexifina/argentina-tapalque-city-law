@@ -1,0 +1,1 @@
+ARTICULO 43º- A los fines del presente capítulo se considerarán actos de publicidad la colocación de letreros, toldos, aparatos luminosos, chapas, avisos, carteles, vidrieras que denuncien la existencia de una actividad comercial, industrial o profesional o de cualquier índole.-

@@ -1,0 +1,1 @@
+ARTICULO 47º- A los efectos del pago del derecho se considerarán actos publicitarios permanentes, aquellos que se realicen en forma continua durante más de seis (6) meses consecutivos. Y actos publicitarios transitorios los que se realicen por períodos inferiores a lo señalado.-
