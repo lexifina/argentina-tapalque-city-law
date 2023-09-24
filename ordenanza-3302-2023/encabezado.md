@@ -1,0 +1,5 @@
+Ordenanza Nº3302
+Ordenanza Nº 3302
+Tapalqué, 07/07/2023
+ORDENANZA
+CAPÍTULO I: ÁMBITO DE APLICACIÓN
