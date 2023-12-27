@@ -1,0 +1,5 @@
+Ordenanza Nº3309
+Ordenanza Nº 3309
+Tapalqué, 29/09/2023
+ORDENANZA
+CREACIÓN DEL PROGRAMA
